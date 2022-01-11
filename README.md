@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Tatlee69
-- 👀 I’m interested in Crypto
-- 🌱 I’m a beginner and willing to learn
-- 💞️ I’m looking to collaborate and commit my time on any crypto projects thats looking to give beginner's opportunities.
+- 👀 I’m interested in Metaverse/Nft's.- 🌱 
+- 💞️ I’m looking to collaborate and commit my time on any crypto projects.
 - 📫 reach me on kal.blockchain@gmail.com
 
 <!---
